@@ -5,3 +5,10 @@
 　　　　　　　　　　　　　　　　　　　　　　*I like Artemis if it wasn't obv already*
 
 > ˋ°*⁀➷ I'm Helpol ! I worship Artemis, Persephone, and Nyx ! ^^
+
+# Dni 
+- Rude people
+- Proshippers
+- SHARPWOLF. (ETM)
+- That one Ganymede x Zeus webtoon readers
+- the basic dnis...
