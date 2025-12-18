@@ -4,7 +4,7 @@
 
 　　　　　　　　　　　　　　　　　　　　　　*I like Artemis if it wasn't obv already*
 
-> ˋ°*⁀➷ I'm Helpol ! I worship Artemis, Persephone, and Nyx ! ^^
+> ˋ°*⁀➷ I'm Pagan ! ^^
 
 # Dni 
 - Rude people
