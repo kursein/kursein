@@ -6,6 +6,16 @@
 
 > ˋ°*⁀➷ I'm Pagan ! ^^
 
+# INT
+- Greek mythology
+- Hades game Persephonyx
+- Artemis and her myths
+- Athena and her myths
+- PERSEPHONE
+- NYX.
+- Circe/Kirke... NOT EPIC CIRCE.
+- Actually... Circe's bloodline
+
 # Dni 
 - Rude people
 - Proshippers
