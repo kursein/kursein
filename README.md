@@ -12,3 +12,4 @@
 - SHARPWOLF. (ETM)
 - That one Ganymede x Zeus webtoon readers
 - the basic dnis...
+- Shipping the gods w/ their siblings w/ the reason "It's greek mythology"
