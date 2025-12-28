@@ -22,6 +22,6 @@
 - SHARPWOLF. (ETM)
 - That one Ganymede x Zeus webtoon readers
 - the basic dnis...
-- Shipping the gods w/ their siblings while using "It's greek mythology" as their excuse
+- Shipping the gods w/ their siblings while using "It's greek mythology" as their excuse except for the actual married ones sighgh... Theres a limit for me
 - Ares x Hermes + Poseidon x Hera
 - Telemarketer jokes, Molly jokes, Pancakes jokes
