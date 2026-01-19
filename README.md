@@ -29,6 +29,7 @@
 - Telemarketer jokes, Molly jokes, Pancakes jokes
 - Twink Polites, and just ppl who twinkify strong/intimidating ppl ig..
 - Valentino Fans
+- People who uses EPIC, PTM, PJO, etc as a reliable source
 
 Take note: If ur uncomfy w/ my sexual and disgusting jokes just say it since I will understand
 
