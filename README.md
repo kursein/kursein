@@ -17,6 +17,9 @@
 - NYX.
 - Circe/Kirke... NOT EPIC CIRCE.
 - Actually... Circe's bloodline
+- The hunchback of Notre Dame [Both book and movie + other movies]
+- Esmeralda <3
+
 
 # Dni 
 - Rude people
@@ -30,6 +33,9 @@
 - Twink Polites, and just ppl who twinkify strong/intimidating ppl ig..
 - Valentino Fans
 - People who uses EPIC, PTM, PJO, etc as a reliable source
+- Frollo x Esmeralda
+- BOOK!Esmeralda x Phoebus
+- BOOK!Esmeralda x anyone rlly
 
 Take note: If ur uncomfy w/ my sexual and disgusting jokes just say it since I will understand
 
