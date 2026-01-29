@@ -37,7 +37,7 @@
 - Frollo x Esmeralda
 - BOOK!Esmeralda x Phoebus
 - BOOK!Esmeralda x anyone rlly
-- Poseidon x Ody (IWEC , I will hate u if put it against my face)
+- Poseidon x Ody (IWEC , I will hate u if push it onto me)
 
 Take note: If ur uncomfy w/ my sexual and disgusting jokes just say it since I will understand
 
