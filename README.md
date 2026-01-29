@@ -7,6 +7,7 @@
 > ˋ°*⁀➷ I'm Pagan ! ^^
 
 --> I WILL get annoyed if you spread misinfo and I would absolutely and 100% correct you because it ticks me off so im sorry abt that
+--> I also unfriend anyone thats friends w/ my dni
 
 # INT
 - Greek mythology
