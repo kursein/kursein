@@ -38,6 +38,7 @@
 - BOOK!Esmeralda x Phoebus
 - BOOK!Esmeralda x anyone rlly
 - Poseidon x Ody (IWEC , I will hate u if push it onto me)
+- Polites x Dionysus (IWEC , same reason as poseidon x ody)
 
 Take note: If ur uncomfy w/ my sexual and disgusting jokes just say it since I will understand
 
