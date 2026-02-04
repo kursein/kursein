@@ -8,7 +8,7 @@
 
 --> I WILL get annoyed if you spread misinfo and I would absolutely and 100% correct you because it ticks me off so im sorry abt that
 --> I also unfriend anyone thats friends w/ my dni
---> I will tend to mix up greek names due to me memorising a ton of names and it all just gets mushed up so dont mind that HELP I will quickly correct myself after since I only realise a few mins or secs later
+--> I tend to mix up greek names due to me memorising a ton of names and it all just gets mushed up so dont mind that HELP I will quickly correct myself after since I only realise a few mins or secs later
 
 # INT
 - Greek mythology
