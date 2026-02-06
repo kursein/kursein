@@ -21,6 +21,8 @@
 - Actually... Circe's bloodline
 - The hunchback of Notre Dame [Both book and movie + other movies]
 - Esmeralda <3
+- Cassandra and Helen
+- PEOPLE who know Athena and Pallas
 
 
 # Dni 
