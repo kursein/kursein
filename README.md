@@ -9,6 +9,7 @@
 --> I WILL get annoyed if you spread misinfo and I would absolutely and 100% correct you because it ticks me off so im sorry abt that
 --> I also unfriend anyone thats friends w/ my dni
 --> I tend to mix up greek names due to me memorising a ton of names and it all just gets mushed up so dont mind that HELP I will quickly correct myself after since I only realise a few mins or secs later
+--> Literally just talk to me about smth if I messed up or misunderstood smth , I'll understand sigiih
 
 # INT
 - Greek mythology
@@ -17,12 +18,12 @@
 - Athena and her myths
 - PERSEPHONE
 - NYX.
-- Circe/Kirke... NOT EPIC CIRCE.
+- Circe/Kirke... Atp lemme have all circe/kirke's HLPPL
 - Actually... Circe's bloodline
 - The hunchback of Notre Dame [Both book and movie + other movies]
 - Esmeralda <3
 - Cassandra and Helen
-- PEOPLE who know Athena and Pallas
+- People who knows Athena and Pallas
 
 
 # Dni 
@@ -33,8 +34,8 @@
 - the basic dnis...
 - Shipping the gods w/ their siblings while using "It's greek mythology" as their excuse <- This doesnt include the actual married ones sighgh... Theres a limit for me
 - Ares x Hermes + Poseidon x Hera
-- Telemarketer jokes, Molly jokes, Pancakes jokes
-- Twink Polites, and just ppl who twinkify strong/intimidating ppl ig..
+- Telemarketer jokes, Molly jokes, Pancakes jokes [IWEC]
+- ppl who twinkify strong/intimidating ppl ig..
 - Valentino Fans
 - People who uses EPIC, PTM, PJO, etc as a reliable source
 - Frollo x Esmeralda
