@@ -6,7 +6,7 @@
 
 > ˋ°*⁀➷ I'm Pagan ! ^^
 
-<code style="color : greenyellow">"Main ships:[HADES] Persephone x Nyx , Callisto x Artemis , Arachne x Melinoe , Melinoe x Nemesis , Zagreus x Megaera , Aphrodite x Athena (Platonic). [BOOKS] (Circe book) Circe x Scylla , Pasiphae x Scylla , Perses x Scylla , Athena x Pallas [platonic gfs]."</code>
+<code style="color : green">Main ships:[HADES] Persephone x Nyx , Callisto x Artemis , Arachne x Melinoe , Melinoe x Nemesis , Zagreus x Megaera , Aphrodite x Athena (Platonic). [BOOKS] (Circe book) Circe x Scylla , Pasiphae x Scylla , Perses x Scylla , Athena x Pallas [platonic gfs].</code>
 
 # INT
 - Greek mythology
