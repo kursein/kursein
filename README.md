@@ -6,11 +6,6 @@
 
 > ˋ°*⁀➷ I'm Pagan ! ^^
 
---> I WILL get annoyed if you spread misinfo and I would absolutely and 100% correct you because it ticks me off so im sorry abt that
---> I also unfriend anyone thats friends w/ my dni
---> I tend to mix up greek names due to me memorising a ton of names and it all just gets mushed up so dont mind that HELP I will quickly correct myself after since I only realise a few mins or secs later
---> Literally just talk to me about smth if I messed up or misunderstood smth , I'll understand sigiih
-
 # INT
 - Greek mythology
 - Hades game Persephonyx
@@ -25,7 +20,12 @@
 - Cassandra and Helen
 - People who knows Athena and Pallas
 
-
+# IWEC [Interact w/ extreme caution]
+- Telemarketer jokes, Molly jokes, Pancakes jokes
+- Poseidon x Ody (I will hate u if push it onto me)
+- Polites x Dionysus (same reason as poseidon x ody)
+- ppl who twinkify strong/intimidating chars
+  
 # Dni 
 - Rude people
 - Proshippers
@@ -34,15 +34,11 @@
 - the basic dnis...
 - Shipping the gods w/ their siblings while using "It's greek mythology" as their excuse <- This doesnt include the actual married ones sighgh... Theres a limit for me
 - Ares x Hermes + Poseidon x Hera
-- Telemarketer jokes, Molly jokes, Pancakes jokes [IWEC]
-- ppl who twinkify strong/intimidating ppl ig..
 - Valentino Fans
 - People who uses EPIC, PTM, PJO, etc as a reliable source
 - Frollo x Esmeralda
 - BOOK!Esmeralda x Phoebus
 - BOOK!Esmeralda x anyone rlly
-- Poseidon x Ody (IWEC , I will hate u if push it onto me)
-- Polites x Dionysus (IWEC , same reason as poseidon x ody)
 
 Take note: If ur uncomfy w/ my sexual and disgusting jokes just say it since I will understand
 
