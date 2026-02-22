@@ -31,6 +31,7 @@ Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , 
 - Poseidon x Ody (I will hate u if push it onto me)
 - Polites x Dionysus (same reason as poseidon x ody)
 - ppl who twinkify strong/intimidating chars
+- Ody x Polites
   
 # Dni 
 - Rude people
@@ -47,6 +48,8 @@ Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , 
 - BOOK!Esmeralda x anyone rlly
 - Hermes x Telemachus (Thats literally incest dni)
 - Sexualising maiden goddesses
+- Ody x Eurymachus [Thats incest]
+- Ody x Hermes [Thats also incest!]
 
 
 
