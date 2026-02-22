@@ -46,6 +46,7 @@ Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , 
 - BOOK!Esmeralda x Phoebus
 - BOOK!Esmeralda x anyone rlly
 - Hermes x Telemachus (Thats literally incest dni)
+- Sexualising maiden goddesses
 
 
 
