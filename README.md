@@ -9,7 +9,7 @@
 
 <code style="color : green">Main ships:[HADES] Persephone x Nyx , Callisto x Artemis , Arachne x Melinoe , Melinoe x Nemesis , Zagreus x Megaera , Aphrodite x Athena (Platonic). [BOOKS] (Circe book) Circe x Scylla , Pasiphae x Scylla , Perses x Scylla , (Of wisdom) Athena x Pallas [platonic gfs].</code>
 
-Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , [HADES] Callisto , [Of wisdom] Pallas , [Nevermore] Ada , [Osora] Catalina , [SU] Spinel .
+Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , [HADES] Callisto , [Of wisdom] Pallas , [Nevermore] Ada , [Osora] Catalina , [SU] Spinel , [Notre Dame[ Esmeralda .
 
 # INT
 - Greek mythology
