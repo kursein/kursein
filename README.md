@@ -5,7 +5,7 @@
 　　　　　　　　　　　　　　　　　　　　　　*I like Artemis if it wasn't obv already*
 
 > ˋ°*⁀➷ I'm Pagan ! ^^
-> I also will correct you about myths
+>  I also will correct you about myths
 
 <code style="color : green">Main ships:[HADES] Persephone x Nyx , Callisto x Artemis , Arachne x Melinoe , Melinoe x Nemesis , Zagreus x Megaera , Aphrodite x Athena (Platonic). [BOOKS] (Circe book) Circe x Scylla , Pasiphae x Scylla , Perses x Scylla , (Of wisdom) Athena x Pallas [platonic gfs].</code>
 
