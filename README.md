@@ -24,6 +24,7 @@ Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , 
 - Esmeralda <3
 - Cassandra and Helen
 - People who knows Athena and Pallas
+- Circe x Scylla
 
 # IWEC [Interact w/ extreme caution]
 - Telemarketer jokes, Molly jokes, Pancakes jokes
