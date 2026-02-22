@@ -37,7 +37,7 @@ Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , 
 - SHARPWOLF. (ETM)
 - That one Ganymede x Zeus webtoon readers
 - the basic dnis...
-- Shipping the gods w/ their siblings while using "It's greek mythology" as their excuse. Our standards changed over time, lets not normalise incest.
+- Shipping the gods w/ their siblings while using "It's greek mythology" as their excuse. Our standards changed over time, lets not normalise incest. Ur ignoring the message of the myths itself.
 - Ares x Hermes + Poseidon x Hera
 - Valentino Fans
 - People who uses EPIC, PTM, PJO, etc as a reliable source
