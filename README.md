@@ -5,8 +5,11 @@
 　　　　　　　　　　　　　　　　　　　　　　*I like Artemis if it wasn't obv already*
 
 > ˋ°*⁀➷ I'm Pagan ! ^^
+> I also will correct you about myths
 
 <code style="color : green">Main ships:[HADES] Persephone x Nyx , Callisto x Artemis , Arachne x Melinoe , Melinoe x Nemesis , Zagreus x Megaera , Aphrodite x Athena (Platonic). [BOOKS] (Circe book) Circe x Scylla , Pasiphae x Scylla , Perses x Scylla , (Of wisdom) Athena x Pallas [platonic gfs].</code>
+
+Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , [HADES] Callisto , [Of wisdom] Pallas , [Nevermore] Ada , [Osora] Catalia , [SU] Spinel .
 
 # INT
 - Greek mythology
@@ -41,6 +44,7 @@
 - Frollo x Esmeralda
 - BOOK!Esmeralda x Phoebus
 - BOOK!Esmeralda x anyone rlly
+- Hermes x Telemachus (Thats literally incest dni)
 
 Take note: If ur uncomfy w/ my sexual and disgusting jokes just say it since I will understand
 
