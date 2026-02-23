@@ -11,6 +11,8 @@
 
 Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , [HADES] Callisto , [Of wisdom] Pallas , [Nevermore] Ada , [Osora] Catalina , [SU] Spinel , [Notre Dame] Esmeralda .
 
+--> I'm Pansexual 
+
 # INT
 - Greek mythology
 - Hades game Persephonyx
