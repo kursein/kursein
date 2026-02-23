@@ -33,6 +33,8 @@ Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , 
 - ppl who twinkify strong/intimidating chars
 - Ody x Polites
 - People who praises Odysseus
+- Circe x Hermes (I see them more like friends where they had a 1 night stand and thats it)
+- Circe x Telemachus (I see them in a complicated, toxic, and unhealthy relationship)
   
 # Dni 
 - Rude people
