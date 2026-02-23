@@ -32,6 +32,7 @@ Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , 
 - Polites x Dionysus (same reason as poseidon x ody)
 - ppl who twinkify strong/intimidating chars
 - Ody x Polites
+- People who praises Odysseus
   
 # Dni 
 - Rude people
@@ -39,7 +40,7 @@ Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , 
 - SHARPWOLF. (ETM)
 - That one Ganymede x Zeus webtoon readers
 - the basic dnis...
-- Shipping the gods with their siblings while using "It's Greek mythology" as their excuse. Our standards have changed over time. Let's not normalise incest. You’re ignoring the message of the myths itself.
+- Shipping greek myths with their siblings while using "It's Greek mythology" as their excuse. Our standards have changed over time. Let's not normalise incest. You’re ignoring the message of the myths itself.
 - Ares x Hermes + Poseidon x Hera
 - Valentino Fans
 - People who uses EPIC, PTM, PJO, etc as a reliable source
@@ -49,6 +50,7 @@ Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , 
 - Hermes x Telemachus (Thats literally incest dni)
 - Sexualising maiden goddesses
 - Ody x Hermes [Thats incest!]
+- People who makes Penelope the masc one just bc shes spartan. YOU ARE IGNORING THE MESSAGE.
 
 
 Take note: If ur uncomfy w/ my sexual and disgusting jokes just say it since I will understand
