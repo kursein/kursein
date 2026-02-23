@@ -24,7 +24,9 @@ Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , 
 - Esmeralda <3
 - Cassandra and Helen
 - People who knows Athena and Pallas
-- Circe x Scylla
+- Circe x Scylla (Love them in the circe book... Wdym u wonder if scylla likes u smhmh)
+- Perse x Scylla (same reason! Also WOW Circe had to disguise herself as him wow)
+- Pasiphae x Scylla (same reason)
 - Odyssey
 - Iliad
 - Sappho
