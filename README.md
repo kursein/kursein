@@ -49,8 +49,6 @@ Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , 
 - Hermes x Telemachus (Thats literally incest dni)
 - Sexualising maiden goddesses
 - Ody x Hermes [Thats incest!]
-- Telemachus x Hermes [Aww also incest js say ur a proshipper]
-
 
 
 Take note: If ur uncomfy w/ my sexual and disgusting jokes just say it since I will understand
