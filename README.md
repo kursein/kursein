@@ -5,7 +5,10 @@
 　　　　　　　　　　　　　　　　　　　　　　*I like Artemis if it wasn't obv already*
 
 > ˋ°*⁀➷ I'm Pagan ! ^^
->  I also will correct you about myths
+
+
+--> I tend to correct people with myths if what they are saying is nonsense,but I will stay quiet if I don't know anything about that certain character
+
 
 <code style="color : green">Main ships:[HADES] Persephone x Nyx , Callisto x Artemis , Arachne x Melinoe , Melinoe x Nemesis , Zagreus x Megaera , Aphrodite x Athena (Platonic). [BOOKS] (Circe book) Circe x Scylla , Pasiphae x Scylla , Perses x Scylla , (Of wisdom) Athena x Pallas [platonic gfs].</code>
 
@@ -41,7 +44,7 @@ Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , 
 - Ody x Polites
 - People who praises Odysseus
 - Circe x Hermes (I see them more like friends where they had a 1 night stand and thats it)
-- Circe x Telemachus (I see them in a complicated, toxic, and unhealthy relationship)
+- Circe x Telemachus (I see them in a complicated, toxic, and unhealthy relationship that's sometimes sweet)
   
 # Dni 
 - Rude people
@@ -51,7 +54,7 @@ Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , 
 - the basic dnis...
 - Shipping greek myths with their siblings while using "It's Greek mythology" as their excuse. Our standards have changed over time. Let's not normalise incest. You’re ignoring the message of the myths itself.
 - Ares x Hermes + Poseidon x Hera
-- Valentino Fans
+- Valentino Fans (dniucf just don't shove his ass onto my face)
 - People who uses EPIC, PTM, PJO, etc as a reliable source
 - Frollo x Esmeralda
 - BOOK!Esmeralda x Phoebus
