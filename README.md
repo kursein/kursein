@@ -12,7 +12,7 @@
 
 <code style="color : green">Main ships:[HADES] Persephone x Nyx , Callisto x Artemis [one-sided] , Arachne x Melinoe , Melinoe x Nemesis , Zagreus x Megaera , Aphrodite x Athena (Platonic). [BOOKS] (Circe book) Circe x Scylla , Pasiphae x Scylla , Perses x Scylla , (Of wisdom) Athena x Pallas [platonic gfs],[Iliad] Menelaus x Helen , Helen x Cassandra of Troy , Andromache x Hector , Deidamia x Pyrrha , Patroclus x Achilles.</code>
 
-Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , [HADES] Callisto , [Of wisdom] Pallas , [Nevermore] Ada , [Osora] Catalina , [SU] Spinel , [Notre Dame] Esmeralda .
+Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , [HADES] Callisto , [Of wisdom] Pallas , [Nevermore] Ada , [Osora] Catalina , [SU] Spinel , [Notre Dame] Esmeralda , [HERCULES] Megaera , .
 
 --> I'm Pansexual 
 
