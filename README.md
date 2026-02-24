@@ -62,7 +62,7 @@ Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , 
 - Hermes x Telemachus (Thats literally incest dni)
 - Sexualising maiden goddesses
 - Ody x Hermes [Thats incest!]
-- People who continuously degrades Penelope to being the alpha masc one and Odysseus being the kitten just bc shes spartan. YOU ARE IGNORING THE MESSAGE AND YOU ARE DUDUDMNBB.
+- People who continuously degrades Penelope to being the alpha masc one and Odysseus being the kitten just bc shes spartan. A woman can't be smart and spartan ig????
 - That new melantho x Penelope book readers
 - People who degrades Apollo,Hermes,Diomedes,Achilles,and etc for just being homosexual and makes it all about them. For example: Apollo only loves Hyacinthus,Hermes only loves Crocus,degrading Diomedes into OdyDio only,Achilles only loves Patroclus.
 
