@@ -60,6 +60,7 @@ Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , 
 - Sexualising maiden goddesses
 - Ody x Hermes [Thats incest!]
 - People who makes Penelope the masc one just bc shes spartan. YOU ARE IGNORING THE MESSAGE.
+- That new melantho x Penelope book readers
 
 
 Take note: If ur uncomfy w/ my sexual and disgusting jokes just say it since I will understand
