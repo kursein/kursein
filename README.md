@@ -53,7 +53,7 @@ Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , 
 - That one Ganymede x Zeus webtoon readers
 - the basic dnis...
 - Shipping greek myths with their siblings while using "It's Greek mythology" as their excuse. Our standards have changed over time. Let's not normalise incest. [Although DNIUID or DNIUVCF.]
-- Shipping the greek gods w/ someone thats mortal AND not that far off related to them or just generally shipping mortals w/ someone that is related to them [That's straight up incest, and I understand if you see the God's not related to eachother since they ARE divine, but shipping them with a MORTAL and IS related to them is fully on wrong since there's so much myths that's telling the reader to not commit incest with mortals since it is BAD.] 
+- Shipping the greek gods w/ someone thats mortal AND not that far off related to them or just generally shipping mortals w/ someone that is related to them [That's straight up incest, and I understand if you see the God's not related to eachother since they ARE divine, but shipping them with a MORTAL and IS related to them is fully on wrong since there's so much myths that's telling the reader to not commit incest with mortals since it is BAD.] Here is a text I made to make it [clearer](https://github.com/kursein/Opinions-GM/blob/main/README.md)
 - Ares x Hermes + Poseidon x Hera
 - Valentino Fans (dniucf just don't shove his ass onto my face)
 - People who uses EPIC, PTM, PJO, etc as a reliable source
