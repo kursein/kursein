@@ -44,7 +44,7 @@ Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , 
 - Ody x Polites
 - People who praises Odysseus
 - Circe x Hermes (I see them more like friends where they had a 1 night stand and thats it)
-- Circe x Telemachus (I see them in a complicated, toxic, and unhealthy relationship that's sometimes sweet... This lwk is the same with how I see Circylla)
+- Circe x Telemachus (I see them in a complicated, toxic, and unhealthy relationship that's sometimes sweet... This lwk is the same with how I see Circylla but I'm not that fond w/ this ship)
   
 # Dni 
 - Rude people
