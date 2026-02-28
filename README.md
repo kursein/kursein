@@ -6,8 +6,6 @@
 
 > ˋ°*⁀➷ I'm Pagan ! ^^
 
-Extra friends mentioned: @Stonehashira408
-
 --> I tend to correct people with myths if what they are saying is nonsense,but I will stay quiet if I don't know anything about that certain character
 
 
