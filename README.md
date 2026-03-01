@@ -8,6 +8,7 @@
 
 --> I tend to correct people with myths if what they are saying is nonsense,but I will stay quiet if I don't know anything about that certain character
 
+I am also Circe's #1 fan
 
 <code style="color : green">Main ships:[HADES] Persephone x Nyx , Persephone x Hades x Nyx , Persephone x Hades , Callisto x Artemis [one-sided] , Arachne x Melinoe , Melinoe x Nemesis , Zagreus x Megaera , Aphrodite x Athena (Platonic) , Ares x Aphrodite . [BOOKS] (Circe book) Circe x Scylla (Before the curse) , Pasiphae x Scylla (Before the curse) , Perses x Scylla (Before the curse) , (Of wisdom) Athena x Pallas [platonic gfs],[Iliad] Menelaus x Helen , Helen x Cassandra of Troy , Andromache x Hector , Deidamia x Pyrrha , Patroclus x Achilles.</code>
 
