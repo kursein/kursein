@@ -76,3 +76,4 @@ This is my friend btw! We are very close so dont think they r me or copying HLEP
 <img width="789" height="594" alt="image" src="https://github.com/user-attachments/assets/38bee0c8-42b8-40cb-988f-cb742db331ab" />
 
 
+![GitHub Views](https://komarev.com/ghpvc/?username=kursein)
