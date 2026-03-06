@@ -66,7 +66,8 @@ Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , 
 - People who continuously degrades Penelope to being the alpha masc one and Odysseus being the kitten just bc shes spartan. A woman can't be smart and spartan ig????
 - That new melantho x Penelope book readers
 - People who degrades Apollo, Hermes, Diomedes, Achilles, and etc for just being homosexual and makes it the characters whole personality while ignoring the other stuff they have done. For example: Apollo only loves Hyacinthus, Hermes only loves Crocus, degrading Diomedes into OdyDio only, Achilles only loves Patroclus.
-
+- Overly obsessed on TSOA
+- Madeline M*ller books in general if ur obsessed w/ them w/o knowing what the actual characters are outside of the books
 
 Take note: If ur uncomfy w/ my sexual and disgusting jokes just say it since I will understand
 
