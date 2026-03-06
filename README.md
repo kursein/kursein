@@ -1,3 +1,4 @@
+
 > "You'd make a real asset on the hunt, I think. Not that Callisto and I need assistance, though."
 
 <img width="3000" height="2267" alt="image" src="https://github.com/user-attachments/assets/7fd8bf0f-35b9-46b7-8dad-9b83cfb8583e" />
@@ -73,4 +74,6 @@ Take note: If ur uncomfy w/ my sexual and disgusting jokes just say it since I w
 
 This is my friend btw! We are very close so dont think they r me or copying HLEP (they bite /j)
 <img width="789" height="594" alt="image" src="https://github.com/user-attachments/assets/38bee0c8-42b8-40cb-988f-cb742db331ab" />
+
+![GitHub Views](https://github.com/kursein)
 
