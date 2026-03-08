@@ -9,7 +9,7 @@
 
 --> I tend to correct people with myths if what they are saying is nonsense,but I will stay quiet if I don't know anything about that certain character
 
-I am also Circe's #1 fan
+Greek myth stuff I specialise in: Circe, Pasiphae, Scylla, Thoosa, Medusa and her siblings, Circe's Kids, Pallas (Athena's friend), Persephone, Nyx, Cassandra of Troy, Callisto, Artemis, Aura, Artemis' myths, and Athena's myths.
 
 <code style="color : green">Main ships:[HADES] Persephone x Nyx , Persephone x Hades x Nyx , Persephone x Hades , Callisto x Artemis [one-sided] , Arachne x Melinoe , Melinoe x Nemesis , Zagreus x Megaera , Aphrodite x Athena (Platonic) , Ares x Aphrodite . [BOOKS] (Circe book) Circe x Scylla (Before the curse) , Pasiphae x Scylla (Before the curse) , Perses x Scylla (Before the curse) , (Of wisdom) Athena x Pallas [platonic gfs],[Iliad] Menelaus x Helen , Helen x Cassandra of Troy , Andromache x Hector , Deidamia x Pyrrha , Patroclus x Achilles.</code>
 
@@ -66,7 +66,7 @@ Kins : [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , 
 - Ody x Hermes [Thats incest!]
 - People who continuously degrades Penelope to being the alpha masc one and Odysseus being the kitten just bc shes spartan. A woman can't be smart and spartan ig????
 - That new melantho x Penelope book readers
-- People who degrades Apollo, Hermes, Diomedes, Achilles, and etc for just being homosexual and makes it the characters whole personality while ignoring the other stuff they have done. For example: Apollo only loves Hyacinthus, Hermes only loves Crocus, degrading Diomedes into OdyDio only, Achilles only loves Patroclus.
+- People who degrades Apollo, Hermes, Diomedes, Achilles, and etc for just being homosexual or due to a popular ship and makes it the characters whole personality while ignoring the other stuff they have done. For example: Apollo only loves Hyacinthus, Hermes only loves Crocus, degrading Diomedes into OdyDio only, Achilles only loves Patroclus.
 - Overly obsessed on TSOA
 - Madeline M*ller books in general if ur obsessed w/ them w/o knowing what the actual characters are outside of the books
 
