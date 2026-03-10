@@ -76,4 +76,9 @@ This is my friend btw! We are very close so dont think they r me or copying HLEP
 <img width="789" height="594" alt="image" src="https://github.com/user-attachments/assets/38bee0c8-42b8-40cb-988f-cb742db331ab" />
 
 
+LOOK AT WHAT MY BELOVED CRAB DREW FOR ME OHO Y MHGOFHOFOGDFG
+<img width="2666" height="1382" alt="image" src="https://github.com/user-attachments/assets/2cbeaa96-a562-48dd-90c0-80e505592b6b" />
+Circlylla foroever
+
+
 ![GitHub Views](https://komarev.com/ghpvc/?username=kursein)
