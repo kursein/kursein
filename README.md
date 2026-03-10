@@ -80,5 +80,7 @@ LOOK AT WHAT MY BELOVED CRAB DREW FOR ME OHO Y MHGOFHOFOGDFG
 <img width="2666" height="1382" alt="image" src="https://github.com/user-attachments/assets/2cbeaa96-a562-48dd-90c0-80e505592b6b" />
 Circlylla foroever
 
+You guys should like praise Crab :/ I love them sm oh mygood OHAHAHA SHDHAS CRICYLLA CRICYLLALA
+
 
 ![GitHub Views](https://komarev.com/ghpvc/?username=kursein)
