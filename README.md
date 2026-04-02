@@ -10,7 +10,7 @@
 </h1>
   <p>$\color{rgb(151, 79, 31)}{\textsf{I'm Pansexual, Pagan, and I worship Artemis , Nyx , and Persephone.}}$</p>
   </h1>
-  <p>$\color{rgb(151, 79, 31)}{\textsf{I specialice in these topics: Circe, Pasiphae, Scylla, Thoosa, Medusa and her siblings, Circe's Kids, Pallas (Athena's friend), Persephone, Nyx, }}$</p>
+  <p>$\color{rgb(151, 79, 31)}{\textsf{I specialise in these topics: Circe, Pasiphae, Scylla, Thoosa, Medusa and her siblings, Circe's Kids, Pallas (Athena's friend), Persephone, Nyx, }}$</p>
 </h1>
   <p>$\color{rgb(151, 79, 31)}{\textsf{Cassandra of Troy, Callisto, Artemis, Aura, Artemis' myths, and Athena's myths.}}$</p>
 </h1>
