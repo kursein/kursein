@@ -55,8 +55,12 @@ $\color{rgb(229, 239, 0)}{\textsf{Rude people, Proshippers, Sharpwolf [ETM + Ody
 </div>
 </div>
 
-<p align="center">────────────────────────────────────────────────────────</p>
-<p align="center">──────────────────────────────────────────────</p>
+<p align="center">$\color{rgb(107, 64, 43)}{\textsf{────────────────────────────────────────────────────────}}$</p>
+<p align="center">$\color{rgb(107, 64, 43)}{\textsf{──────────────────────────────────────────────}}$</p>
+
+<p align="center">$\color{rgb(151, 79, 31)}{\textsf{⋆˖⁺‧₊☽𝑺𝒑𝒆𝒄𝒊𝒂𝒍 𝒎𝒆𝒏𝒕𝒊𝒐𝒏𝒔:}}$ $\color{rgb(199, 106, 0)}{\textsf{Crab ,}}$ $\color{rgb(120, 96, 133)}{\textsf{Roween <3☾₊‧⁺˖⋆}}$</p>
+
+<p align="center">$\color{rgb(107, 64, 43)}{\textsf{──────────────────────────────────────────────}}$</p>
 
 
 <p align="center"><img width="500" height="154" alt="image" src="https://github.com/user-attachments/assets/d2be10a3-42f3-47e8-aa0f-a91f258e719a" />
