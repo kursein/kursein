@@ -2,7 +2,8 @@
 
 <p align="center">$\color{rgb(67, 97, 99)}{\textsf{"}}\color{rgb(64, 98, 98)}{\textsf{S}}\color{rgb(61, 99, 97)}{\textsf{o}}\color{rgb(59, 100, 96)}{\textsf{n}}\color{rgb(57, 101, 94)}$ $\color{rgb(56, 101, 94)}{\textsf{o}}\color{rgb(56, 101, 91)}{\textsf{f}}\color{55, 102, 89)}$ $\color{rgb(54, 103, 85)}{\textsf{L}}\color{rgb(55, 103, 82)}{\textsf{a}}\color{rgb(56, 104, 78)}{\textsf{e}}\color{rgb(57, 104, 74)}{\textsf{r}}\color{rgb(60, 104, 70)}{\textsf{t}}\color{rgb(62, 104, 66)}{\textsf{e}}\color{rgb(66, 104, 61)}{\textsf{s}}\color{rgb(70, 104, 57)}{\textsf{,}}$ $\color{rgb(74, 104, 52)}{\textsf{s}}\color{rgb(78, 103, 48)}{\textsf{u}}\color{rgb(83, 103, 43)}{\textsf{b}}\color{rgb(88, 102, 39)}{\textsf{t}}\color{rgb(93, 101, 35)}{\textsf{l}}\color{rgb(99, 100, 31)}{\textsf{e}}$ $\color{rgb(104, 98, 27)}{\textsf{O}}\color{rgb(110, 97, 25)}{\textsf{d}}\color{rgb(116, 95, 22)}{\textsf{y}}\color{rgb(122, 93, 21)}{\textsf{s}}\color{rgb(128, 91, 21)}{\textsf{s}}\color{rgb(134, 88, 22)}{\textsf{e}}\color{rgb(139, 85, 24)}{\textsf{u}}\color{rgb(146, 82, 27)}{\textsf{s}}\color{rgb(151, 79, 31)}{\textsf{.}}\color{rgb(151, 79, 31)}{\textsf{"}}$</p>
 
-<p align="center"><img width="800" height="325" alt="image" src="https://github.com/user-attachments/assets/1ecbad86-4a35-4f22-a830-c1a16e2ab7b6" /></p>
+<p align="center"><img width="800" height="425" alt="image" src="https://github.com/user-attachments/assets/292ec9eb-f9d3-4cba-a5fb-e42c96cdcc3f" />
+</p>
 
 <div align="center">
   <h1>$\color{rgb(67, 97, 99)}{\textsf{﹢. 𝑲𝒖𝒓𝒔𝒆𝒊𝒏 ○}}$
@@ -63,7 +64,8 @@ $\color{rgb(229, 239, 0)}{\textsf{Rude people, Proshippers, Sharpwolf [ETM + Ody
 <p align="center">$\color{rgb(107, 64, 43)}{\textsf{──────────────────────────────────────────────}}$</p>
 
 
-<p align="center"><img width="500" height="154" alt="image" src="https://github.com/user-attachments/assets/d2be10a3-42f3-47e8-aa0f-a91f258e719a" />
+<p align="center"><img width="500" height="154" alt="image" src="https://github.com/user-attachments/assets/e4fb6a0e-7e8d-47a6-978e-4695cf48887e" />
+
 </p>
 
 
