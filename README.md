@@ -27,7 +27,7 @@ $\color{rgb(229, 239, 0)}{\textsf{Kins: [HADES] Persephone , [Circe] Scylla , [E
       <details>
 <summary>$\color{rgb(67, 97, 99)}{\textsf{★ . 𝑨𝒃𝒐𝒖𝒕 𝒎𝒆﹑}}$</summary>
 
-$\color{rgb(229, 239, 0)}{\textsf{I correct people when they are incorrect about something like the myths, when your uncomfortable about something that I do please tell me }}$ $\color{rgb(229, 239, 0)}{\textsf{I'll stop, and I'm very social !! I do get jealous sometimes and I have a little bit of an anger issues, but I do try to control them. I'm not able to}}$ $\color{rgb(229, 239, 0)}{\textsf{control them that well when I'm on my bleeding week though !! I'm also an hopeless romantic}}$
+$\color{rgb(229, 239, 0)}{\textsf{I correct people when they are incorrect about something like the myths, when your  }}$ $\color{rgb(229, 239, 0)}{\textsf{uncomfortable about something that I do please tell meI'll stop, and I'm very social !! I do get jealous sometimes and I have a little bit of an}}$ $\color{rgb(229, 239, 0)}{\textsf{anger issues, but I do try to control them. I'm not able tocontrol them that well when I'm on my bleeding week though !! I'm also an hopeless romantic}}$
 
 </div>
 </div>
@@ -36,7 +36,7 @@ $\color{rgb(229, 239, 0)}{\textsf{I correct people when they are incorrect about
       <details>
 <summary>$\color{rgb(67, 97, 99)}{\textsf{／ 𝑰𝒏𝒕 .ᐟ}}$</summary>
 
-$\color{rgb(229, 239, 0)}{\textsf{Greek mythology, Artemis and her myths, Athena and her myths, PERSEPHONE, NYX,, Circe/Kirke, Circe's bloodline, The hunchback of Notre }}$ $\color{rgb(229, 239, 0)}{\textsfDame {[Both book and movie + other movies], Esmeralda <3, Cassandra and Helen, People who knows Athena and Pallas, Circe x Scylla [Circe}}$ $\color{rgb(229, 239, 0)}{\textsf{book], Perses x Scylla [Circe book], Pasiphae x Scylla [Circe book], Odyssey, Iliad, Sappho.}}$
+$\color{rgb(229, 239, 0)}{\textsf{Greek mythology, Artemis and her myths, Athena and her myths, PERSEPHONE, NYX,, Circe/Kirke, Circe's bloodline, The hunchback of Notre }}$ $\color{rgb(229, 239, 0)}{\textsf{Dame [Both book and movie + other movies], Esmeralda <3, Cassandra and Helen, People who knows Athena and Pallas, Circe x Scylla [Circe}}$ $\color{rgb(229, 239, 0)}{\textsf{book], Perses x Scylla [Circe book], Pasiphae x Scylla [Circe book], Odyssey, Iliad, Sappho.}}$
 
 </div>
 </div>
