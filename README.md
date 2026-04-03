@@ -27,7 +27,7 @@ $\color{rgb(229, 239, 0)}{\textsf{Kins: [HADES] Persephone , [Circe] Scylla , [E
       <details>
 <summary>$\color{rgb(67, 97, 99)}{\textsf{★ . 𝑨𝒃𝒐𝒖𝒕 𝒎𝒆﹑}}$</summary>
 
-$\color{rgb(229, 239, 0)}{\textsf{I correct people when they are incorrect about something like the myths, when your  }}$ $\color{rgb(229, 239, 0)}{\textsf{uncomfortable about something that I do please tell meI'll stop, and I'm very social !! I do get jealous sometimes and I have a little bit of an}}$ $\color{rgb(229, 239, 0)}{\textsf{anger issues, but I do try to control them. I'm not able tocontrol them that well when I'm on my bleeding week though !! I'm also an hopeless romantic}}$
+$\color{rgb(229, 239, 0)}{\textsf{I correct people when they are incorrect about something like the myths, when your}}$ $\color{rgb(229, 239, 0)}{\textsf{uncomfortable about something that I do please tell meI'll stop, and I'm very social !! I do get jealous sometimes and I have a little bit of an}}$ $\color{rgb(229, 239, 0)}{\textsf{anger issues, but I do try to control them. I'm not able tocontrol them that well when I'm}}$ $\color{rgb(229, 239, 0)}{\textsf{on my bleeding week though !! I'm also an hopeless romantic}}$
 
 </div>
 </div>
