@@ -44,7 +44,7 @@ $\color{rgb(229, 239, 0)}{\textsf{Greek mythology, Artemis and her myths, Athena
       <details>
 <summary>$\color{rgb(67, 97, 99)}{\textsf{⇵ 𝑰𝑾𝑬𝑪﹒ㄑ}}$</summary>
 
-$\color{rgb(229, 239, 0)}{\textsf{Telemarketer jokes, Molly jokes, Pancakes jokes, Poseidon x Ody [They r related], Polites }}$ $\color{rgb(229, 239, 0)}{\textsf{x Dionysus (Just dont push the ship onto me), ppl who twinkify strong/intimidating chars, Ody}}$ $\color{rgb(229, 239, 0)}{\textsf{x Polites, Circe x Hermes (I see them more like friends where they had a 1 night stand and thats it), Circe x Telemachus (I see them in a complicated, toxic, and unhealthy relationship that's}}$ $\color{rgb(229, 239, 0)}{\textsf{sometimes sweet... This lwk is the same with how I see Circylla but}}$ $\color{rgb(229, 239, 0)}{\textsf{I'm just not that fond w/ this ship)}}$
+$\color{rgb(229, 239, 0)}{\textsf{Telemarketer jokes, Molly jokes, Pancakes jokes, Poseidon x Ody [They r related], Polites }}$ $\color{rgb(229, 239, 0)}{\textsf{x Dionysus (Just dont push the ship onto me), ppl who twinkify strong/intimidating chars, Ody}}$ $\color{rgb(229, 239, 0)}{\textsf{x Polites, Circe x Hermes (I see them more like friends where they had a 1 night stand and thats it), Circe x Telemachus (I see them in a}}$ $\color{rgb(229, 239, 0)}{\textsf{complicated, toxic, and unhealthy relationship that's sometimes sweet... This lwk is the same}}$ $\color{rgb(229, 239, 0)}{\textsf{with how I see Circylla but I'm just not that fond w/ this ship)}}$
 
 </div>
 </div>
