@@ -79,6 +79,4 @@ $\color{rgb(229, 239, 0)}{\textsf{Rude people, Proshippers, Sharpwolf [ETM + Ody
 
   ![GitHub Views](https://komarev.com/ghpvc/?username=kursein)
 
-$\color{rgb(67, 97, 99)}{\textsf{⇵ More friends :}}$ [Galaxy](https://github.com/ShatteredGalaxyy) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Eurylochus](https://github.com/Stonehashira408)
-
-
+$\color{rgb(67, 97, 99)}{\textsf{⇵ More friends :}}$ [Galaxy](https://github.com/ShatteredGalaxyy) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Eurylochus](https://github.com/Stonehashira408) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Helena](https://github.com/poisonivorys)
