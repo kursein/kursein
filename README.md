@@ -20,7 +20,7 @@
 
 $\color{rgb(229, 239, 0)}{\textsf{Main ships:[HADES] Persephone x Nyx , Persephone x Hades x Nyx , Persephone x Hades , Callisto x Artemis [one-sided] , Arachne x}}$ $\color{rgb(229, 239, 0)}{\textsf{Melinoe , Melinoe x Nemesis , Zagreus x Megaera , Aphrodite x Athena (Platonic) , Ares x Aphrodite . [BOOKS] (Circe book) Circe x Scylla }}$ $\color{rgb(229, 239, 0)}{\textsf{(Before the curse) , Pasiphae x Scylla (Before the curse) , Perses x Scylla (Before the curse) , (Of wisdom) Athena x Pallas [platonic gfs]}}$ $\color{rgb(229, 239, 0)}{\textsf{,[Iliad] Menelaus x Helen , Helen x Cassandra of Troy , Andromache x Hector , Deidamia x Pyrrha , Patroclus x Achilles , etc.}}$
 
-$\color{rgb(229, 239, 0)}{\textsf{Kins: [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , [HADES] Callisto , [Of wisdom] Pallas , [Nevermore] Ada , [Osora]}}$ $\color{rgb(229, 239, 0)}{\textsf{Catalina , [SU] Spinel , [Notre Dame] Esmeralda , [HERCULES] Megara , Olivia Burke [GOAT]}}$
+$\color{rgb(229, 239, 0)}{\textsf{Kins: [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , [HADES] Callisto , [Of wisdom] Pallas , [Nevermore] Ada ,}}$ $\color{rgb(229, 239, 0)}{\textsf{[Osora] Catalina , [SU] Spinel , [Notre Dame] Esmeralda , [HERCULES] Megara , [GOAT] Olivia Burke}}$
 </div>
 
 <div align="center">
