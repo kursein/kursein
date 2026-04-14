@@ -56,6 +56,13 @@ $\color{rgb(229, 239, 0)}{\textsf{Rude people, Proshippers, Sharpwolf [ETM + Ody
 
 </div>
 </div>
+<div align="center">
+      <details>
+<summary>$\color{rgb(67, 97, 99)}{\textsf{﹐𝐏𝐞𝐨𝐩𝐥𝐞 𝐢𝐧 𝐃𝐍𝐈 ✘}}$</summary>
+
+$\color{rgb(229, 239, 0)}{\textsf{Doe, Xavier, Nutella, The incest rp group in the GM area.}}$ 
+
+</div>
 
 <p align="center">$\color{rgb(107, 64, 43)}{\textsf{────────────────────────────────────────────────────────}}$</p>
 <p align="center">$\color{rgb(107, 64, 43)}{\textsf{──────────────────────────────────────────────}}$</p>
