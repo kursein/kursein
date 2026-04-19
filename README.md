@@ -82,8 +82,6 @@ $\color{rgb(229, 239, 0)}{\textsf{Doe, Xavier, Nutella, The incest rp group in t
 
 
 
-
-
   ![GitHub Views](https://komarev.com/ghpvc/?username=kursein)
 
-$\color{rgb(67, 97, 99)}{\textsf{⇵ More friends :}}$ [Galaxy](https://github.com/ShatteredGalaxyy) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Eurylochus](https://github.com/Stonehashira408) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Helena](https://github.com/poisonivorys)
+$\color{rgb(67, 97, 99)}{\textsf{⇵ More friends :}}$ [Galaxy](https://github.com/ShatteredGalaxyy) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Eurylochus](https://github.com/EurylochusOfSame) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Helena](https://github.com/poisonivorys)
