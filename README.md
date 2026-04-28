@@ -36,7 +36,7 @@ $\color{rgb(229, 239, 0)}{\textsf{I correct people when they are incorrect about
       <details>
 <summary>$\color{rgb(67, 97, 99)}{\textsf{／ 𝑰𝒏𝒕 .ᐟ}}$</summary>
 
-$\color{rgb(229, 239, 0)}{\textsf{Greek mythology, Artemis and her myths, Athena and her myths, PERSEPHONE, NYX,, Circe/Kirke, Circe's bloodline, The hunchback of}}$ $\color{rgb(229, 239, 0)}{\textsf{Notre Dame [Both book and movie + other movies], Esmeralda <3, Cassandra and Helen, People who}}$ $\color{rgb(229, 239, 0)}{\textsf{knows Athena and Pallas, Circe x Scylla [Circe book], Perses x Scylla [Circe book], Pasiphae x}}$ $\color{rgb(229, 239, 0)}{\textsf{Scylla [Circe book], Odyssey, Iliad, Sappho,}}$ $\color{rgb(229, 239, 0)}{\textsf{The movie GOAT.}}$
+$\color{rgb(229, 239, 0)}{\textsf{Greek mythology, Artemis and her myths, Athena and her myths, PERSEPHONE, NYX,, Circe/Kirke, Circe's bloodline, The hunchback of}}$ $\color{rgb(229, 239, 0)}{\textsf{Notre Dame [Both book and movie + other movies], Esmeralda <3, Cassandra and Helen, People who}}$ $\color{rgb(229, 239, 0)}{\textsf{knows Athena and Pallas, Circe x Scylla [Circe book], Perses x Scylla [Circe book], Pasiphae x}}$ $\color{rgb(229, 239, 0)}{\textsf{Scylla [Circe book], Odyssey, Iliad, Sappho,}}$ $\color{rgb(229, 239, 0)}{\textsf{The movie GOAT, Miss peregrine's home for peculiar children.}}$
 
 </div>
 </div>
