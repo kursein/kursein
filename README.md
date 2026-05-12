@@ -8,7 +8,7 @@
 <div align="center">
   <h1>$\color{rgb(67, 97, 99)}{\textsf{﹢. 𝑲𝒖𝒓𝒔𝒆𝒊𝒏 ○}}$
 </h1>
-  <p>$\color{rgb(151, 79, 31)}{\textsf{I'm Pansexual, Pagan, and I worship Artemis , Nyx , and Persephone.}}$</p>
+  <p>$\color{rgb(151, 79, 31)}{\textsf{I'm Pansexual, Polyamorous, Pagan, and I worship Artemis , Nyx , and Persephone.}}$</p>
   </h1>
   <p>$\color{rgb(151, 79, 31)}{\textsf{I specialise in these topics: Circe, Pasiphae, Scylla, Thoosa, Medusa and her siblings, Circe's  }}$</p>
 </h1>
