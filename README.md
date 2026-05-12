@@ -67,7 +67,7 @@ $\color{rgb(229, 239, 0)}{\textsf{Doe, Xavier, Nutella, Sugar, The incest rp gro
 <p align="center">$\color{rgb(107, 64, 43)}{\textsf{────────────────────────────────────────────────────────}}$</p>
 <p align="center">$\color{rgb(107, 64, 43)}{\textsf{──────────────────────────────────────────────}}$</p>
 
-<p align="center">$\color{rgb(151, 79, 31)}{\textsf{⋆˖⁺‧₊☽𝑺𝒑𝒆𝒄𝒊𝒂𝒍 𝒎𝒆𝒏𝒕𝒊𝒐𝒏𝒔:}}$ $\color{rgb(199, 106, 0)}{\textsf{Crab ,}}$ $\color{rgb(120, 96, 133)}{\textsf{Roween <3 xoxo 4 them DEF Roween☾₊‧⁺˖⋆}}$</p>
+<p align="center">$\color{rgb(151, 79, 31)}{\textsf{⋆˖⁺‧₊☽𝑺𝒑𝒆𝒄𝒊𝒂𝒍 𝒎𝒆𝒏𝒕𝒊𝒐𝒏𝒔:}}$ $\color{rgb(199, 106, 0)}{\textsf{Crab ,}}$ $\color{rgb(120, 96, 133)}{\textsf{Roween <3 ,}}$ $\color{rgb(219, 70, 106)}{\textsf{Reaz 💗 !☾₊‧⁺˖⋆}}$</p> 
 
 <p align="center">$\color{rgb(107, 64, 43)}{\textsf{──────────────────────────────────────────────}}$</p>
 
