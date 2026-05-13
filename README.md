@@ -14,7 +14,7 @@
 </h1>
   <p>$\color{rgb(151, 79, 31)}{\textsf{Kids, Pallas (Athena's friend), Persephone, Nyx ,Cassandra of Troy, Callisto, Artemis,}}$</p>
 </h1>
-  <p>$\color{rgb(151, 79, 31)}{\textsf{Aura, Artemis' myths, and Athena's myths.}}$</p>
+  <p>$\color{rgb(151, 79, 31)}{\textsf{Aura, Artemis' myths, Athena's myths, and Azula .}}$</p>
   <details>
 <summary>$\color{rgb(67, 97, 99)}{\textsf{╰╮ 𝑺𝒉𝒊𝒑𝒔 𝒂𝒏𝒅 𝑲𝒊𝒏𝒔 .∪}}$</summary>
 
