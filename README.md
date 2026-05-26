@@ -3,7 +3,7 @@
 
 <div align="center">
 
-<img width="700" height="400" alt="image" src="https://github.com/user-attachments/assets/cf6983ef-3aef-4d55-9320-187e8a85b971" />
+<img width="700" height="400" alt="image" src="https://github.com/user-attachments/assets/edfc8405-4306-4576-8ae7-cf149a371558" />
 
 
 </div>
@@ -36,7 +36,8 @@ $\color{rgb(32, 138, 141)}{\textsf{ϟ══════════════�
 
 <div align="center">
   
-<img width="200" height="190" alt="image" src="https://github.com/user-attachments/assets/7591af95-8e53-4176-97bc-acca64678058" />
+<img width="200" height="190" alt="image" src="https://github.com/user-attachments/assets/928bd620-f52d-4a69-885a-28fbca5ba220" />
+
 
 </div>
 
