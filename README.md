@@ -38,6 +38,12 @@ $\color{rgb(32, 138, 141)}{\textsf{ϟ══════════════�
   
 <img width="200" height="190" alt="image" src="https://github.com/user-attachments/assets/928bd620-f52d-4a69-885a-28fbca5ba220" />
 
+$\color{rgb(32, 138, 141)}{\textsf{ϟ════════════════════ϟ}}\color{rgb(37, 138, 138)}$
+
+$\color{rgb(237, 112, 84)}{\textsf{ ⌁ Special mentions:}}\color{rgb(237, 112, 84)}$ $\color{rgb(168, 85, 36)}{\textsf{Crab ,}}\color{rgb(237, 112, 84)}$ $\color{rgb(150, 58, 199)}{\textsf{Roween ,}}\color{rgb(237, 112, 84)}$ $\color{rgb(149, 159, 164)}{\textsf{Reaz <33}}\color{rgb(237, 112, 84)}$
+
+$\color{rgb(32, 138, 141)}{\textsf{ϟ═════════════════════════ϟ}}\color{rgb(37, 138, 138)}$
+
 
 </div>
 
