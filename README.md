@@ -1,88 +1,46 @@
 
-
-<p align="center">$\color{rgb(67, 97, 99)}{\textsf{"}}\color{rgb(64, 98, 98)}{\textsf{S}}\color{rgb(61, 99, 97)}{\textsf{o}}\color{rgb(59, 100, 96)}{\textsf{n}}\color{rgb(57, 101, 94)}$ $\color{rgb(56, 101, 94)}{\textsf{o}}\color{rgb(56, 101, 91)}{\textsf{f}}\color{55, 102, 89)}$ $\color{rgb(54, 103, 85)}{\textsf{L}}\color{rgb(55, 103, 82)}{\textsf{a}}\color{rgb(56, 104, 78)}{\textsf{e}}\color{rgb(57, 104, 74)}{\textsf{r}}\color{rgb(60, 104, 70)}{\textsf{t}}\color{rgb(62, 104, 66)}{\textsf{e}}\color{rgb(66, 104, 61)}{\textsf{s}}\color{rgb(70, 104, 57)}{\textsf{,}}$ $\color{rgb(74, 104, 52)}{\textsf{s}}\color{rgb(78, 103, 48)}{\textsf{u}}\color{rgb(83, 103, 43)}{\textsf{b}}\color{rgb(88, 102, 39)}{\textsf{t}}\color{rgb(93, 101, 35)}{\textsf{l}}\color{rgb(99, 100, 31)}{\textsf{e}}$ $\color{rgb(104, 98, 27)}{\textsf{O}}\color{rgb(110, 97, 25)}{\textsf{d}}\color{rgb(116, 95, 22)}{\textsf{y}}\color{rgb(122, 93, 21)}{\textsf{s}}\color{rgb(128, 91, 21)}{\textsf{s}}\color{rgb(134, 88, 22)}{\textsf{e}}\color{rgb(139, 85, 24)}{\textsf{u}}\color{rgb(146, 82, 27)}{\textsf{s}}\color{rgb(151, 79, 31)}{\textsf{.}}\color{rgb(151, 79, 31)}{\textsf{"}}$</p>
-
-<p align="center"><img width="800" height="425" alt="image" src="https://github.com/user-attachments/assets/292ec9eb-f9d3-4cba-a5fb-e42c96cdcc3f" />
-</p>
+<p align="center">$\color{rgb(169, 73, 52)}{\textsf{"}}\color{rgb(169, 73, 52)}{\textsf{T}}\color{rgb(169, 73, 52)}{\textsf{r}}\color{rgb(171, 71, 58)}{\textsf{u}}\color{rgb(171, 71, 58)}{\textsf{s}}\color{rgb(173, 70, 64)}{\textsf{t}}\color{rgb(175, 69, 70)}$ $\color{rgb(176, 68, 76)}{\textsf{i}}\color{rgb(177, 67, 82)}{\textsf{s}}\color{rgb(178, 67, 88)}$ $\color{rgb(178, 67, 94)}{\textsf{f}}\color{rgb(177, 68, 100)}{\textsf{o}}\color{rgb(177, 69, 106)}{\textsf{r}}\color{rgb(176, 70, 112)}$ $\color{rgb(174, 71, 118)}{\textsf{f}}\color{rgb(172, 73, 124)}{\textsf{o}}\color{rgb(170, 75, 129)}{\textsf{o}}\color{rgb(167, 77, 135)}{\textsf{l}}\color{rgb(164, 80, 140)}{\textsf{s}}\color{rgb(161, 82, 145)}{\textsf{.}}\color{rgb(157, 85, 150)}$ $\color{rgb(153, 87, 154)}{\textsf{F}}\color{rgb(149, 90, 158)}{\textsf{e}}\color{rgb(145, 93, 162)}{\textsf{a}}\color{rgb(140, 95, 165)}{\textsf{r}}\color{rgb(135, 98, 169)}$ $\color{rgb(129, 100, 171)}{\textsf{i}}\color{rgb(124, 103, 174)}{\textsf{s}}\color{rgb(118, 105, 176)}$ $\color{rgb(112, 108, 178)}{\textsf{t}}\color{rgb(106, 110, 179)}{\textsf{h}}\color{rgb(100, 112, 180)}{\textsf{e}}\color{rgb(94, 114, 181)}$ $\color{rgb(87, 116, 181)}{\textsf{o}}\color{rgb(81, 116, 181)}{\textsf{n}}\color{rgb(81, 118, 181)}{\textsf{l}}\color{rgb(74, 120, 181)}{\textsf{y}}\color{rgb(67, 122, 180)}$ $\color{rgb(61, 123, 179)}{\textsf{r}}\color{rgb(54, 125, 177)}{\textsf{e}}\color{rgb(47, 126, 176)}{\textsf{l}}\color{rgb(41, 128, 174)}{\textsf{i}}\color{rgb(34, 129, 172)}{\textsf{a}}\color{rgb(28, 130, 169)}{\textsf{b}}\color{rgb(22, 131, 167)}{\textsf{l}}\color{rgb(17, 132, 164)}{\textsf{e}}\color{rgb(13, 133, 161)}$ $\color{rgb(12, 134, 158)}{\textsf{w}}\color{rgb(13, 135, 155)}{\textsf{a}}\color{rgb(16, 136, 152)}{\textsf{y}}\color{rgb(21, 136, 148)}{\textsf{.}}\color{rgb(26, 137, 145)}$ $\color{rgb(32, 138, 141)}{\textsf{E}}\color{rgb(37, 138, 138)}{\textsf{v}}\color{rgb(0, 135, 141)}{\textsf{e}}\color{rgb(0, 132, 146)}{\textsf{n}}\color{rgb(0, 128, 148)}$ $\color{rgb(0, 123, 149)}{\textsf{y}}\color{rgb(0, 118, 149)}{\textsf{o}}\color{rgb(0, 114, 149)}{\textsf{u}}\color{rgb(0, 110, 149)}$ $\color{rgb(0, 106, 149)}{\textsf{f}}\color{rgb(0, 102, 148)}{\textsf{e}}\color{rgb(0, 98, 148)}{\textsf{a}}\color{rgb(0, 94, 150)}{\textsf{r}}\color{rgb(0, 89, 153)}$ $\color{rgb(0, 84, 159)}{\textsf{m}}\color{rgb(0, 89, 165)}{\textsf{e}}\color{rgb(0, 114, 184)}{\textsf{.}}\color{rgb(116, 156, 168)}{\textsf{"}}\color{rgb(116, 156, 168)}$</p>
 
 <div align="center">
-  <h1>$\color{rgb(67, 97, 99)}{\textsf{﹢. 𝑲𝒖𝒓𝒔𝒆𝒊𝒏 ○}}$
-</h1>
-  <p>$\color{rgb(151, 79, 31)}{\textsf{I'm Pansexual, Polyamorous, Pagan, and I worship Artemis , Nyx , and Persephone.}}$</p>
-  </h1>
-  <p>$\color{rgb(151, 79, 31)}{\textsf{I specialise in these topics: Circe, Pasiphae, Scylla, Thoosa, Medusa and her siblings, Circe's  }}$</p>
-</h1>
-  <p>$\color{rgb(151, 79, 31)}{\textsf{Kids, Pallas (Athena's friend), Persephone, Nyx ,Cassandra of Troy, Callisto, Artemis,}}$</p>
-</h1>
-  <p>$\color{rgb(151, 79, 31)}{\textsf{Aura, Artemis' myths, Athena's myths, and Azula .}}$</p>
-  <details>
-<summary>$\color{rgb(67, 97, 99)}{\textsf{╰╮ 𝑺𝒉𝒊𝒑𝒔 𝒂𝒏𝒅 𝑲𝒊𝒏𝒔 .∪}}$</summary>
 
-$\color{rgb(229, 239, 0)}{\textsf{Main ships:[HADES] Persephone x Nyx , Persephone x Hades x Nyx , Persephone x Hades , Callisto x Artemis [one-sided] , Arachne x}}$ $\color{rgb(229, 239, 0)}{\textsf{Melinoe , Melinoe x Nemesis , Zagreus x Megaera , Aphrodite x Athena (Platonic) , Ares x Aphrodite . [BOOKS] (Circe book) Circe x Scylla }}$ $\color{rgb(229, 239, 0)}{\textsf{(Before the curse) , Pasiphae x Scylla (Before the curse) , Perses x Scylla (Before the curse) , (Of wisdom) Athena x Pallas [platonic gfs]}}$ $\color{rgb(229, 239, 0)}{\textsf{,[Iliad] Menelaus x Helen , Helen x Cassandra of Troy , Andromache x Hector , Deidamia x Pyrrha , Patroclus x Achilles ,}}$ $\color{rgb(229, 239, 0)}{\textsf{[ATLA] Ty Lee x Azula, Ty Lee x Azula x Mai, Mai x Zuko, Katara x Aang, Xuan x Jin, Korra x Asami, Rangi x Kyoshi, etc.}}$
+<img width="700" height="400" alt="image" src="https://github.com/user-attachments/assets/cf6983ef-3aef-4d55-9320-187e8a85b971" />
 
-$\color{rgb(229, 239, 0)}{\textsf{Kins: [HADES] Persephone , [Circe] Scylla , [EPIC] Circe , [WH] Julie Joyful , [HADES] Callisto , [Of wisdom] Pallas , [Nevermore] Ada ,}}$ $\color{rgb(229, 239, 0)}{\textsf{[Osora] Catalina , [SU] Spinel , [Notre Dame] Esmeralda , [HERCULES] Megara , [GOAT] Olivia Burke}}$ $\color{rgb(229, 239, 0)}{\textsf{, [BOZ] Hera, [ATLA] Azula (Heavy kin), [ATLA] Ty Lee , [ATLA/TROK] Rangi .}}$
+
 </div>
 
 <div align="center">
-      <details>
-<summary>$\color{rgb(67, 97, 99)}{\textsf{★ . 𝑨𝒃𝒐𝒖𝒕 𝒎𝒆﹑}}$</summary>
 
-$\color{rgb(229, 239, 0)}{\textsf{I correct people when they are incorrect about something like the myths, and when you're}}$ $\color{rgb(229, 239, 0)}{\textsf{uncomfortable about something that I do please tell me I'll stop. I'm also very social !! I do}}$ $\color{rgb(229, 239, 0)}{\textsf{get jealous sometimes and I have a little bit of anger issues, but I do try to control them. I'm}}$ $\color{rgb(229, 239, 0)}{\textsf{just unable to control them that well when I'm on my bleeding week though !!}}$ $\color{rgb(229, 239, 0)}{\textsf{I also block and unfriend freely, so when I see u friends with sharpwolf or incest roleplayers}}$ $\color{rgb(229, 239, 0)}{\textsf{and you KNOW they are, I will unfriend or block you.}}$
+[Carrd](https://fireprincess.carrd.co/#)　　　　　　　　　[Pronouns](https://en.pronouns.page/@kursein)　　　　　　　　　[Ata](https://kursein.atabook.org/)
 
-</div>
 </div>
 
 <div align="center">
-      <details>
-<summary>$\color{rgb(67, 97, 99)}{\textsf{／ 𝑰𝒏𝒕 .ᐟ}}$</summary>
 
-$\color{rgb(229, 239, 0)}{\textsf{Greek mythology, Artemis and her myths, Athena and her myths, PERSEPHONE, NYX,, Circe/Kirke, Circe's bloodline, The hunchback of}}$ $\color{rgb(229, 239, 0)}{\textsf{Notre Dame [Both book and movie + other movies], Esmeralda <3, Cassandra and Helen, People who}}$ $\color{rgb(229, 239, 0)}{\textsf{knows Athena and Pallas, Circe x Scylla [Circe book], Perses x Scylla [Circe book], Pasiphae x}}$ $\color{rgb(229, 239, 0)}{\textsf{Scylla [Circe book], Odyssey, Iliad, Sappho,}}$ $\color{rgb(229, 239, 0)}{\textsf{The movie GOAT, Miss peregrine's home for peculiar children,}}$ $\color{rgb(229, 239, 0)}{\textsf{Avatar the Last airbender + novels.}}$
+$\color{rgb(32, 138, 141)}{\textsf{ϟ═════════════════════════════ϟ}}\color{rgb(37, 138, 138)}$
+
 
 </div>
-</div>
+
 <div align="center">
-      <details>
-<summary>$\color{rgb(67, 97, 99)}{\textsf{⇵ 𝑰𝑾𝑬𝑪﹒ㄑ}}$</summary>
-
-$\color{rgb(229, 239, 0)}{\textsf{Telemarketer jokes, Molly jokes, Pancakes jokes, Poseidon x Ody [They r related], Polites }}$ $\color{rgb(229, 239, 0)}{\textsf{x Dionysus (Just dont push the ship onto me), ppl who twinkify strong/intimidating chars, Ody}}$ $\color{rgb(229, 239, 0)}{\textsf{x Polites, Circe x Hermes (I see them more like friends where they had a 1 night stand and thats it), Circe x Telemachus (I see them in a}}$ $\color{rgb(229, 239, 0)}{\textsf{complicated, toxic, and unhealthy relationship that's sometimes sweet... This lwk is the same}}$ $\color{rgb(229, 239, 0)}{\textsf{with how I see Circylla but I'm just not that fond w/ this ship, Roleplayers .}}$
+  
+![Peasants](https://komarev.com/ghpvc/?username=kursein&label=PEASANTS.&color=008ba0)
 
 </div>
-</div>
+
 <div align="center">
-      <details>
-<summary>$\color{rgb(67, 97, 99)}{\textsf{﹐𝑫𝑵𝑰 ✘}}$</summary>
 
-$\color{rgb(229, 239, 0)}{\textsf{Rude people, Proshippers, Sharpwolf [ETM + Odyssey], My Unreachable Ganimedes, Basic DNIs, Shipping greek myths with their siblings }}$ $\color{rgb(229, 239, 0)}{\textsf{while using "It's Greek mythology" as their excuse, Shipping the greek gods w/ someone thats mortal AND not that far off related to them }}$ $\color{rgb(229, 239, 0)}{\textsf{or just generally shipping mortals w/ someone that is related to them [That's straight up incest, and I understand if you see the God's not }}$ $\color{rgb(229, 239, 0)}{\textsf{related to eachother since they ARE divine, but shipping them with a MORTAL and IS related to them is fully on wrong since there's so much}}$ $\color{rgb(229, 239, 0)}{\textsf{myths that's telling the reader to not commit incest with mortals since it is BAD.] Here is a text I made to make it}}$ [clearer](https://github.com/kursein/Opinions-GM/blob/main/README.md)$\color{rgb(229, 239, 0)}{\textsf{, Valentino Fans (dniucf just don't shove his ass onto my face), People who uses EPIC, PTM, PJO, etc as a reliable source, Frollo x }}$ $\color{rgb(229, 239, 0)}{\textsf{Esmeralda, BOOK!Esmeralda x Anyone, Hermes x Telemachus (Thats literally incest dni), Sexualising maiden goddesses, Ody x Hermes}}$ $\color{rgb(229, 239, 0)}{\textsf{[Thats incest!], People who continuously degrades Penelope to being the alpha masc one and Odysseus being the kitten just bc shes}}$ $\color{rgb(229, 239, 0)}{\textsf{spartan. A woman can't be  smart and spartan ig????, Sweetbitter song book readers, People who degrades Apollo, Hermes, Diomedes, Achilles, and}}$ $\color{rgb(229, 239, 0)}{\textsf{etc for just being homosexual or due to a popular ship and makes it the characters whole personality while ignoring the other stuff they}}$ $\color{rgb(229, 239, 0)}{\textsf{have done. For example: Apollo only loves Hyacinthus, Hermes only loves Crocus, degrading Diomedes into OdyDio only, Achilles only loves}}$ $\color{rgb(229, 239, 0)}{\textsf{Patroclus, Overly obsessed on TSOA, Madeline M*ller books in general if ur obsessed w/ them w/o knowing what}}$ $\color{rgb(229, 239, 0)}{\textsf{the actual characters are outside of the books, The Freak Circus.}}$
+$\color{rgb(32, 138, 141)}{\textsf{ϟ═════════════════════════════ϟ}}\color{rgb(37, 138, 138)}$
+
 
 </div>
-</div>
+
 <div align="center">
-      <details>
-<summary>$\color{rgb(67, 97, 99)}{\textsf{﹐𝐏𝐞𝐨𝐩𝐥𝐞 𝐢𝐧 𝐃𝐍𝐈 ✘}}$</summary>
-
-$\color{rgb(229, 239, 0)}{\textsf{Doe, Xavier, Nutella, Sugar, The incest rp group in the GM area.}}$ 
+  
+<img width="200" height="190" alt="image" src="https://github.com/user-attachments/assets/7591af95-8e53-4176-97bc-acca64678058" />
 
 </div>
-
-<p align="center">$\color{rgb(107, 64, 43)}{\textsf{────────────────────────────────────────────────────────}}$</p>
-<p align="center">$\color{rgb(107, 64, 43)}{\textsf{──────────────────────────────────────────────}}$</p>
-
-<p align="center">$\color{rgb(151, 79, 31)}{\textsf{⋆˖⁺‧₊☽𝑺𝒑𝒆𝒄𝒊𝒂𝒍 𝒎𝒆𝒏𝒕𝒊𝒐𝒏𝒔:}}$ $\color{rgb(199, 106, 0)}{\textsf{Crab ,}}$ $\color{rgb(120, 96, 133)}{\textsf{Roween <3 ,}}$ $\color{rgb(219, 70, 106)}{\textsf{Reaz 💗 !☾₊‧⁺˖⋆}}$</p> 
-
-<p align="center">$\color{rgb(107, 64, 43)}{\textsf{──────────────────────────────────────────────}}$</p>
-
-
-<p align="center"><img width="500" height="154" alt="image" src="https://github.com/user-attachments/assets/e4fb6a0e-7e8d-47a6-978e-4695cf48887e" />
-
-</p>
-
-
-
-
-
-
-
-  ![GitHub Views](https://komarev.com/ghpvc/?username=kursein)
 
 $\color{rgb(67, 97, 99)}{\textsf{⇵ More friends :}}$ [Eurylochus](https://github.com/EurylochusOfSame) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Xao](https://github.com/xaoxly) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Fufu](https://github.com/Fufuyio1206) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Tiff](https://github.com/stockedstiff)
+
+
 
