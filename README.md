@@ -40,7 +40,7 @@ $\color{rgb(32, 138, 141)}{\textsf{ϟ══════════════�
 
 $\color{rgb(32, 138, 141)}{\textsf{ϟ════════════════════ϟ}}\color{rgb(37, 138, 138)}$
 
-$\color{rgb(237, 112, 84)}{\textsf{ ⌁ Special mentions:}}\color{rgb(237, 112, 84)}$ $\color{rgb(168, 85, 36)}{\textsf{Crab ,}}\color{rgb(237, 112, 84)}$ $\color{rgb(150, 58, 199)}{\textsf{Roween ,}}\color{rgb(237, 112, 84)}$ $\color{rgb(149, 159, 164)}{\textsf{Reaz (My one and only Ty Lee btw) <33}}\color{rgb(237, 112, 84)}$
+$\color{rgb(237, 112, 84)}{\textsf{ ⌁ Special mentions:}}\color{rgb(237, 112, 84)}$ $\color{rgb(168, 85, 36)}{\textsf{Crab ,}}\color{rgb(237, 112, 84)}$ $\color{rgb(150, 58, 199)}{\textsf{Roween ,}}\color{rgb(237, 112, 84)}$ $\color{rgb(149, 159, 164)}{\textsf{Reaz <3}}\color{rgb(237, 112, 84)}$
 
 $\color{rgb(32, 138, 141)}{\textsf{ϟ═════════════════════════ϟ}}\color{rgb(37, 138, 138)}$
 
