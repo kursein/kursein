@@ -47,6 +47,6 @@ $\color{rgb(32, 138, 141)}{\textsf{ϟ══════════════�
 
 </div>
 
-$\color{rgb(67, 97, 99)}{\textsf{⇵ More friends :}}$ [Eurylochus](https://github.com/EurylochusOfSame) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Xao](https://github.com/xaoxly) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Fufu](https://github.com/Fufuyio1206) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Tiff](https://github.com/stockedstiff) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Bito](https://github.com/bakuholician)
+$\color{rgb(67, 97, 99)}{\textsf{⇵ More friends :}}$ [Eurylochus](https://github.com/EurylochusOfSame) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Xao](https://github.com/xaoxly) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Fufu](https://github.com/Fufuyio1206) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Tiff](https://github.com/stockedstiff) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Bito](https://github.com/bakuholician) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Nicolae](https://github.com/azutara)
 
 
