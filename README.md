@@ -45,13 +45,13 @@ $\color{rgb(32, 138, 141)}{\textsf{ϟ══════════════�
 
 $\color{rgb(32, 138, 141)}{\textsf{ϟ════════════════════ϟ}}\color{rgb(37, 138, 138)}$
 
-$\color{rgb(237, 112, 84)}{\textsf{ ⌁ Special mentions:}}\color{rgb(237, 112, 84)}$ $\color{rgb(168, 85, 36)}{\textsf{Crab ,}}\color{rgb(237, 112, 84)}$ $\color{rgb(150, 58, 199)}{\textsf{Roween ,}}\color{rgb(237, 112, 84)}$ $\color{rgb(149, 159, 164)}{\textsf{Reaz <3}}\color{rgb(237, 112, 84)}$
+$\color{rgb(237, 112, 84)}{\textsf{ ⌁ ꜱᴘᴇᴄɪᴀʟ ᴍᴇɴᴛɪᴏɴꜱ:}}\color{rgb(237, 112, 84)}$ $\color{rgb(168, 85, 36)}{\textsf{ᴄʀᴀʙ ,}}\color{rgb(237, 112, 84)}$ $\color{rgb(150, 58, 199)}{\textsf{ʀᴏᴡᴇᴇɴ ,}}\color{rgb(237, 112, 84)}$ $\color{rgb(149, 159, 164)}{\textsf{ʀᴇᴀᴢ <3}}\color{rgb(237, 112, 84)}$
 
 $\color{rgb(32, 138, 141)}{\textsf{ϟ═════════════════════════ϟ}}\color{rgb(37, 138, 138)}$
 
 
 </div>
 
-$\color{rgb(67, 97, 99)}{\textsf{⇵ More friends :}}$ [Eurylochus](https://github.com/EurylochusOfSame) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Xao](https://github.com/xaoxly) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Fufu](https://github.com/Fufuyio1206) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Tiff](https://github.com/stockedstiff) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Bito](https://github.com/bakuholician) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Nicolae](https://github.com/azutara) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Crimson](https://github.com/HYDROSOVEREIGN) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [Zuko](https://github.com/Iordzuko)
+$\color{rgb(67, 97, 99)}{\textsf{⇵ ᴍᴏʀᴇ ꜰʀɪᴇɴᴅꜱ :}}$ [ᴇᴜʀʏʟᴏᴄʜᴜꜱ](https://github.com/EurylochusOfSame) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [xᴀᴏ](https://github.com/xaoxly) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [ꜰᴜꜰᴜ](https://github.com/Fufuyio1206) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [ᴛɪꜰꜰ](https://github.com/stockedstiff) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [ʙɪᴛᴏ](https://github.com/bakuholician) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [ɴɪᴄᴏʟᴀᴇ](https://github.com/azutara) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [ᴄʀɪᴍꜱᴏɴ](https://github.com/HYDROSOVEREIGN) $\color{rgb(67, 97, 99)}{\textsf{,}}$ [ᴢᴜᴋᴏ](https://github.com/Iordzuko)
 
 
