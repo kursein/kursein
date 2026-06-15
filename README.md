@@ -1,6 +1,6 @@
 <div align="center">
 
-<img width="720" height="347" alt="image" src="https://github.com/user-attachments/assets/d2694969-52d6-4cbe-b0f4-0eb15d4abf90" />
+<img width="720" height="347" alt="image" src="https://github.com/user-attachments/assets/70f115ee-3064-4071-b26b-54a6c970b773" />
 
 </div>
 
@@ -8,7 +8,7 @@
 
 <div align="center">
 
-<img width="720" height="503" alt="image" src="https://github.com/user-attachments/assets/f96a7095-3ff4-40d5-b448-1e86c83f8cfc" />
+<img width="720" height="503" alt="image" src="https://github.com/user-attachments/assets/c3d5967e-8ab2-42e1-91f9-b722119d59e8" />
 
 </div>
 
@@ -35,8 +35,9 @@ $\color{rgb(32, 138, 141)}{\textsf{(⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐�
 </div>
 
 <div align="center">
-<img width="720" height="347" alt="image" src="https://github.com/user-attachments/assets/c03027c2-8858-4d08-8870-cb097557baad" />
-<img width="720" height="347" alt="image" src="https://github.com/user-attachments/assets/536b3521-2ea3-4f9a-bfcf-4a1453a417e5" />
+  
+<img width="720" height="347" alt="image" src="https://github.com/user-attachments/assets/a445b6d4-0148-4c1b-a6d3-4b4def15db15" />
+<img width="720" height="347" alt="image" src="https://github.com/user-attachments/assets/ab46315f-1545-4dfe-9583-f202f1b66b94" />
 
 </div>
 
