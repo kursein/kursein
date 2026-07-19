@@ -35,8 +35,9 @@ $\color{rgb(32, 138, 141)}{\textsf{(⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐�
 </div>
 
 <div align="center">
-  
-<img width="720" height="347" alt="image" src="https://github.com/user-attachments/assets/a445b6d4-0148-4c1b-a6d3-4b4def15db15" />
+
+
+  <img width="720" height="347" alt="image" src="https://github.com/user-attachments/assets/49e44142-44f7-4ed7-9909-8708455da8e4" />
 <img width="720" height="347" alt="image" src="https://github.com/user-attachments/assets/ab46315f-1545-4dfe-9583-f202f1b66b94" />
 
 </div>
